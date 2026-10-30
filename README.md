@@ -47,4 +47,4 @@ Ready to experience the taste of true luxury? Visit our official website to brow
 👉 **[https://aquatir.com.ua/](https://aquatir.com.ua/)** *(Available in UA / RU)*
 
 * 📍 **Address:** 39a Dalnytska St., Odesa, Ukraine
-* 📞 **Phones:** `+38 (097) 449-11-23` | `+38 (095) 985-42-52` | `+38 (063) 491-07-10`
+* 📞 **Phones:** `+38 (068) 472-03-59` | `+38 (063) 393-32-82`
